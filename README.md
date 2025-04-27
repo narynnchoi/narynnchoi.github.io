@@ -1,1 +1,0 @@
-# narynnchoi.github.io
